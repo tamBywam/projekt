@@ -1,0 +1,1 @@
+cos jest tutaj wpisane >-<
